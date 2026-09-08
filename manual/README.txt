@@ -1,0 +1,1 @@
+Open Adviax Media Manual(index.html) in your browser to view.
